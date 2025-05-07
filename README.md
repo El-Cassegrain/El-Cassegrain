@@ -6,4 +6,4 @@ Depuis cette époque en 2009-2011, chez les Sérécommiens de Saint-Raphaël, je
 
 Je suis aujourd'hui Web designer freelance, 💪 et formateur. J'aime donner vie à mes maquettes, en prenant garde à soigner l'expérience utilisateur, et les intégrer au pixel près. Je souhaite avant tout être reconnu par mes pairs, et rendre le web meilleur et plus éthique.
 
-N'hésitez pas à visiter https://etienneleriche.fr/ pour plus d'informations.
+N'hésitez pas à visiter https://etienneleriche.com/ pour plus d'informations.
